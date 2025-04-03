@@ -1,1 +1,0 @@
-# GDS-Manager-privacy-policy
